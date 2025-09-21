@@ -1,5 +1,5 @@
 ### Hi there 👋
--👩‍🏫I'm currently a freshman at Bilkent University
+-👩‍🏫I'm currently a third year student at Bilkent University
 
 
 <!--
